@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Tzaritsa
 - 👀 I’m interested in fashion in the tech space
 - 🌱 I’m currently learning nothing specific but lots intentionally
-- 💞️ I’m looking to collaborate on apps that support sustainabe growth
+- 💞️ I’m looking to collaborate on apps that support sustainable growth
 - 📫 How to reach me tzaritsa@bytzari.com
 - 😄 Pronouns: None
 - ⚡ Fun fact: loading....
